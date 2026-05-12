@@ -1,4 +1,4 @@
-# 
+# updated NordVPN for PC | NordVPN for Windows Service | dedicated-IP + split-tunneling is the best NordVPN for PC | NordVPN for Windows service, featuring dedicated-IP and
 
 
 
